@@ -1,1 +1,1 @@
-https://belka215.github.io/rsschool-cv/
+https://belka215.github.io/rsschool-cv/cv
